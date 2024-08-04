@@ -2,7 +2,8 @@
 (𝙒𝙊𝙍𝙆𝙎 𝙊𝙉 𝘼𝙇𝙇 𝙋𝙇𝘼𝙏𝙁𝙊𝙍𝙈𝙎) 
 
 <p align="center">[𝗣𝗮𝗶𝗱] Access only via Telegram: https://t.ly/s4K4p</p>
-<p align="center><img src="https://github.com/user-attachments/assets/c066a35c-0615-4e85-93e7-38a3ab0146ef" /> <br>
+<p align="center"><img src="https://github.com/user-attachments/assets/61faf6f7-fcaa-4c63-9ec1-ace9897654d0" />
+ <br>
 ↓ ɢᴇᴛ ɪɴꜱᴛᴀɴᴛ ʀᴇᴠᴇɴɢᴇ ᴏɴ ᴛʜᴇ ᴘᴇᴏᴘʟᴇ ʏᴏᴜ ʜᴀᴛᴇ​ ↓
 </p>
 <p align="center">
